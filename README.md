@@ -1,7 +1,5 @@
 # Deepak Singh
 # System Administrator
-Neem ki Gali, Deen Darwaja Road, Didwana 341303 (RJ) <br/>
-(+91) 8107160143 <br/>
 singhdeepak.ds1994@gmail.com <br/>
 
 
